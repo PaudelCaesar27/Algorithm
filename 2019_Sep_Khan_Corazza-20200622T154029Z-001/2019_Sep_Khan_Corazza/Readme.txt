@@ -1,0 +1,1 @@
+Prof. Khan & Prof. gave this course. Prof. Khan taught the lectures before midterm, and Corazza the rest.
